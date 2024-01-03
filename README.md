@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Turki Almalki @iTKEX
+- 👀 I’m interested in Software Engineering and Cybersecurity
+- 📫 Email : tkex_@outlook.com , Phone Number : +966 54 505 0766
